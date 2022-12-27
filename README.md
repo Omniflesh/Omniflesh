@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Omniflesh
+- 👀 I’m interested in flesh
+- 🌱 I’m currently learning "Flesh: Pain and Pleasure"
+- 💞️ I’m looking to collaborate on making flesh sing
+- 📫 How to reach me: Touch your flesh, feel your flesh, enjoy your flesh
